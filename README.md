@@ -5,6 +5,3 @@
 🚀 **Consistency and evolution every day**   
 ⚡ **From zero to professional**
 
-## 📊 GitHub Stats
-
-
